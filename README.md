@@ -1,1 +1,1 @@
-[Sławomir Górski](https://pl.linkedin.com/in/slawomir-gorski/en-us?trk=profile-badge)
+![LinkedIn Profile](https://i.imgur.com/Y9iJNxA.png)
